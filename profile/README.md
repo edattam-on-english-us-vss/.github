@@ -2,11 +2,11 @@
 
  Edattam captivated audiences with its heart-wrenching love story and unforgettable music. Over the years, the film has built a loyal fanbase, leading to immense anticipation for its sequel. Now, in 2025, *Edattam* is officially in development, promising to continue the emotional legacy of its predecessor.
 
-### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie](#LP#)
+### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie](https://t.co/Ok8ujrQoNh)
 
-### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie](#LP#)
+### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie](https://t.co/Ok8ujrQoNh)
 
-### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](#LP#)
+### [➤ ►🌍📺📱👉   Edattam (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://t.co/Ok8ujrQoNh)
 
 ### **Official Announcement and Production Updates**
 
